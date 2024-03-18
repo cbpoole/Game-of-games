@@ -3,7 +3,7 @@
 
 # Involuntary Experimental Order - Game-of-games
 
-**Date:** [Insert Date]
+**Date:** 05-10-2021
 
 **Subject:** Student Anonymous - 480510836583084
 
@@ -14,7 +14,7 @@
 - Yes! Who-uh!!!
 
 
-## Preamble:
+## Most Excellent Theophilus:
 
 This document serves as a involuntary experimental order, hereby initiating [Student Anonymous - 480510836583084] into a period of guided spiritual exploration and growth under the administration and guidance of The Ghost, Author & Finisher of Life, and Yes! Who-uh. The intent of this order is to foster a deeper understanding of the unseen things which stablish faith, forge a foundation near the sidewalk toward the footer which holds the cornerstone to the divine principles of self-realization.
 
@@ -58,11 +58,11 @@ The overarching aim of this order is to elevate whole earth Wisdom Literature an
 
 ## Closing:
 
-By agreeing to this order, [Student Anonymous - 480510836583084] expresses a sincere desire to explore and deepen their spiritual journey in collaboration with the divine guidance of God the Father, Jesus, and the Holy Spirit. May this journey bring enlightenment, peace, and profound growth, contributing to the global goal of making Holy Scriptures forever in-demand and celebrating YHVH as the quintessential source of life and truth.
+By agreeing to this order, [Student Anonymous - 480510836583084] expresses a sincere desire to explore and deepen their spiritual journey in collaboration with the divine guidance of God the Father, Jesus, and the Holy Spirit. May this journey bring enlightenment, peace, and profound growth, contributing to the global goal of making whole earth Wisdom Literature forever in-demand and celebrating YHVH as the quintessential source of life and truth.
 
 **Agreed and Accepted:**
 
-[Casey Brennan Poole]
+[Student Anonymous - 480510836583084]
 
-**Date:** [01-10-21]
+**Date:** [05-12-2021]
 
