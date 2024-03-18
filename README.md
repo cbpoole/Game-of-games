@@ -34,7 +34,7 @@ This experimental order shall commence on [Start Date] and conclude on [End Date
 
 ### Article 4: Free Will
 
-The subject retains the illusion of free will and most agree to the hallucinatory ability to choose their own path & ultimatum decisions throughout the experiment and the remainder of life. No matter the residual lingering dingleberries left to deal with in cleaning up the mess that becomes the forward future of life. The role of the Order Administrators is to git actionable and enjoy themselves once more; waking the woke, while messing with the meek - quite a conundrum for personal pontification and clairvoyant meditation.
+The subject retains the illusion of free will and all-well... Most agree to the hallucinatory ability to choose their own path & ultimatum decisions throughout the experiment and the remainder of life. No matter the residual lingering dingleberries left to deal with in cleaning up the mess that becomes the forward future of life. The role of the Order Administrators is to git actionable and enjoy themselves once more; waking the woke, while messing with the meek - quite a conundrum for personal pontification and clairvoyant meditation.
 
 ### Article 5: Confidentiality
 
