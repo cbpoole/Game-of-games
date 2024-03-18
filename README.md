@@ -16,13 +16,13 @@
 
 ## Preamble:
 
-This document serves as a voluntary experimental order, hereby initiating [Student Anonymous - 480510836583084] into a period of guided spiritual exploration and growth under the administration and guidance of The Ghost, Author & Finisher of Life, and Yes! Who-uh. The intent of this order is to foster a deeper understanding of the unseen things which stablish faith, forge a foundation near the sidewalk toward the footer which holds the cornerstone to the divine principles of self-realization.
+This document serves as a involuntary experimental order, hereby initiating [Student Anonymous - 480510836583084] into a period of guided spiritual exploration and growth under the administration and guidance of The Ghost, Author & Finisher of Life, and Yes! Who-uh. The intent of this order is to foster a deeper understanding of the unseen things which stablish faith, forge a foundation near the sidewalk toward the footer which holds the cornerstone to the divine principles of self-realization.
 
 ## Articles:
 
 ### Article 1: Commitment
 
-The subject voluntarily commits to engage in this spiritual experiment, seeking guidance, wisdom, and understanding from the Order Administrators with an open heart and mind.
+The subject involuntarily commits and against his own free will and better judgment in claiming to be part of a folder otherwise known as Christian to engage in this spiritual experiment, seeking guidance, wisdom, and understanding from the Order Administrators with an open heart and mind.
 
 ### Article 2: Guidance
 
